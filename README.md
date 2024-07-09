@@ -7,4 +7,13 @@
 - 行云官方群组
   - [https://t.me/xingyunpublic](https://t.me/xingyunpublic)
 
+【优惠码】
+- 季付9折：x4ojMHgO
+- 年付8折：WHCNjhP8
+
+优惠码所有商品通用
+
+【推广返利】
+使用您的专属链接或邀请码邀请新用户，对方每次消费您均可获得20%的佣金返利，佣金可以提现。
+
 请Star本仓库以防止失联！
