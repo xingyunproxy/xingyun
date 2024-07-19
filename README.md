@@ -4,6 +4,7 @@
 - 行云官网
   - [https://xy.waka.plus](https://xy.waka.plus)
   - [https://www.066664.xyz](https://www.066664.xyz)
+  - [https://www.xyurl.site](https://www.xyurl.site)
 - 行云官方频道
   - [https://t.me/xingyunofficial](https://t.me/xingyunofficial)
 - 行云官方群组
